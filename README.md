@@ -1,10 +1,9 @@
 
 
 
-I want to help with html, css and javascript.
+I want to help with anything I can.
 
-The authours prefered substraight, is a combination; html css javascript.
-
+The authours prefered substraight, is a combination; html css, and graphics.
 The Authour likes youtube, and is a visual artist.
  
 
